@@ -24,7 +24,8 @@
 <br/>
 
 <br/>
-⭐ figure 2^3
+⭐ figure 2^4
+<br/>
 
 1 : then what is there ... ( from the bullies stance : " what is there ....... " )
 
